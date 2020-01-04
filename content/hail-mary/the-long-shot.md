@@ -7,7 +7,7 @@ With our "real community" definition in mind, and knowing how easily one tweet c
 
 And creating it, and sustaining it, while talking about social justice dogma -- or any hot-button, volatile issue -- is nigh impossible.
 
-But if we can find a way to work "nigh" into a sentence in 2019, we can find a way to create authentic connection and interdependence.
+But if we can find a way to work "nigh" into a sentence in 2020, we can find a way to create authentic connection and interdependence.
 
 **In the rest of this Module "Dot-Com-Munity", we'll be elaborating on how things blow up online, how to protect yourself (and ourselves), some of the forces at play, and some counter-forces we can apply.**
 
